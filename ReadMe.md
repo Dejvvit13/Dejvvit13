@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭I'm currently working on my portfolio projects and looking for job<br> 🌱Currently learning Spring framework<br>⚡Fun fact: I bench press 150kg<br>
+🔭I'm currently working on my portfolio projects and looking for job<br> 🌱Currently learning Spring framework<br>⚡Fun fact: I bench press 162kg<br>
 
 
 ## 🌐 Socials:
